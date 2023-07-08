@@ -1,4 +1,4 @@
-Hello im Pasha, and i would tell you about DackieSwap
+Hello everybody, and i would tell you about DackieSwap
 Title: Dackie Official: The Game-Changer in Decentralized Swapping
 
 Introduction:
